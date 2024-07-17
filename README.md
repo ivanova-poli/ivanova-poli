@@ -1,0 +1,1 @@
+I am a freshman in Data Engineering with a strong passion for data and technology. While I may lack extensive experience, I make up for it with enthusiasm, a willingness to learn, and a dedication to improving my skills. If you are looking for a committed and eager individual to join your team, I am ready and excited to be that person.
